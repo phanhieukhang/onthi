@@ -1,0 +1,1 @@
+hoc gop nhanh
